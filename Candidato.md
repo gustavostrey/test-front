@@ -1,9 +1,8 @@
-Nome Completo: Luiz Boça
+Nome Completo: Gustavo Strey
 
-E-mail: luiz.boca@clubedosminigameiros.com.br
+E-mail: gustavostrey@hotmail.com
 
-Linkedin: http://linkedin.com/luiz.boca
+Linkedin: https://www.linkedin.com/in/gustavostrey/
 
-Telefone: (44) 44444-4444 
+Telefone: (49) 98803-6756 
 
-Portfólio (Opicional): clubedosminigameiros.com.br/portfolio
